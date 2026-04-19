@@ -27,4 +27,4 @@ Windows 🪟
 -------------------
 --📫 Contacto
 📧 Email 
-🔗 LinkedIn 
+🔗 LinkedIn.
